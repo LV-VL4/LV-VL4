@@ -6,7 +6,7 @@ PSA: Design Theft & Skin Stealing
 <img width="1077" height="566" alt="Screenshot_20260502_155921_town pony game_edit_515737410390050" src="https://github.com/user-attachments/assets/11fe9241-4f6d-4bb8-ab7c-5efca5c7b404" />
 
 
-i reached out to them and asked them to delete the copied skin days ago. they claimed they "made it" or "saw a friend with it." this is a lie. my friends were present during the entire creation process of my guest skin. Despite being told to stop, they have continued to wear the skin, THINKING i wouldnt notice. my oomfz whispered and came to me after my dismissal in a regiscout they said they spotted a guest skin that looked exactly like mine, confirming they have no intention of respecting my work! wow..WOW!. if you see someone wearing this skin who isnt me, they are wearing a stolen skin. no one has this guest skin but me. ^above
+i reached out to them and asked them to delete the copied skin days ago. they claimed they "made it" or "saw a friend with it." this is a lie. my friends were present during the entire creation process of my guest skin. DESPITE being told to stop, they have continued to wear the skin THAT I TOLD THEM TO DELETE IT, THINKING i wouldnt notice. my oomfz whispered and came to me after my dismissal in a regiscout they said they spotted a guest skin that looked exactly like mine, confirming they have no intention of respecting my work! wow..WOW!. if you see someone wearing this skin who isnt me, they are wearing a stolen skin. no one has this guest skin but me. ^above
 
 their github:
 <img width="955" height="248" alt="Screenshot_20260502_160905_town pony game_edit_515764069853066" src="https://github.com/user-attachments/assets/00dfa4bb-3bbf-4d53-9d5e-47d8802df0e7" />
@@ -19,4 +19,4 @@ their github:
 
 **NO STUPID EXCUSES** : if you are caught, "my friend gave it to me" is not a valid excuse.
 
-I will continue to update this README to warn others about players who refuse to respect original creators.
+i will continue to update this README to warn others about players who refuse to respect original creators.
