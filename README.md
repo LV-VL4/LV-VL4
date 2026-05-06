@@ -14,6 +14,9 @@ their github:
 **please do not go out of your way to harass or witch-hunt this person.**
 
 **NO COPYING** : Do not copy my patterns, accessories, or specific shading styles.
+
 **NO STEALING** : Do not take screenshots of my OCs to "recreate" them later.
+
 **NO LIES** : If you are caught, "my friend gave it to me" is not a valid excuse.
+
 I will continue to update this README to warn others about players who refuse to respect original creators.
