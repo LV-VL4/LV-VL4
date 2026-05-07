@@ -1,4 +1,4 @@
-PSA: Design Theft & Skin Stealing
+Skin Stealing. bruh. AND **PLEASE BE AWARE OF THIS PERSON!**
 
   i do not tolerate plagiarism. i put hours of work into my skins, including specific shading, color-picking pallettes, and layering. taking my work and claiming it as your own isnt "inspiration" thats actually theft btw.
   /calling out to a certain someone below 
