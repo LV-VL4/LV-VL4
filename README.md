@@ -13,7 +13,7 @@ oh i forgot to mention that they said they CLAIMED and MADE it from 2023, uhm..?
 their github:
 <img width="955" height="248" alt="Screenshot_20260502_160905_town pony game_edit_515764069853066" src="https://github.com/user-attachments/assets/00dfa4bb-3bbf-4d53-9d5e-47d8802df0e7" />
 
-**please do not go out of your way to harass or witch-hunt this person.**
+**please do not go out of your way to harass or witch-hunt this person.** "dnc" AND PROCEED TO COPY MY GUEST BRUH WHY YOU TRYNA BE OG 😭🙏
 
 **NO COPYING** : do not copy my patterns, accessories, or specific shading styles.
 
